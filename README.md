@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Google projects
 - 📫 How to reach me (Instagram: @jayksxz)
 - 😄 Pronouns: he/her
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I don't like beet
 
 <!---
 0Jaykxz/0Jaykxz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
