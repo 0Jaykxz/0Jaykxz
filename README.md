@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning code, inglesh, japanse and high school
 - 💞️ I’m looking to collaborate on Google projects
 - 📫 How to reach me (Instagram: @jayksxz)
-- 😄 Pronouns: he/her
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: I don't like beet
 
 <!---
