@@ -1,4 +1,4 @@
-**eu gosto mesmo é das gordinhas** - *Isaac Newton*
+é o Bolico né vida
 
 <!---
 0Jaykxz/0Jaykxz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
